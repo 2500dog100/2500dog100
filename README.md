@@ -1,4 +1,4 @@
-### Hi there 👋
+### Not doing a lot of stuff :( i have a profile on scarcth @2500dog100
 
 <!--
 **2500dog100/2500dog100** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
